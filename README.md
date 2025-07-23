@@ -1,0 +1,1 @@
+# qontango-logo-assets
